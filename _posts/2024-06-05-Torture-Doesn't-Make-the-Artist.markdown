@@ -6,7 +6,7 @@ categories: journal
 ---
 As I write this, I'm at one of the lowest points in my life.
 
-First, my day job wrings the soul out of me each day, leaving me feeling unfulfilled, unappreciate, and underpaid—and I'm thoroughly convinced it's the best opportunity available.
+First, my day job wrings the soul out of me each day, leaving me feeling unfulfilled, unappreciated, and underpaid—and I'm thoroughly convinced it's the best opportunity available.
 
 Second, I've come to the realization that while I love Jesus, I do not love the Evangelical church—or rather, I love it in the despairing way you can a family member who has made horrible decisions and who now must face the consequences of separation because you can no longer be responsible for their choices. For I also love others, my brothers, my sisters, my dearly beloved LGBTQ+ friends who have been reviled by the church. I can only believe now that to love them as Christ loves, I must leave the church that refuses to do so.
 
