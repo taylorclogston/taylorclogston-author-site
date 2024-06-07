@@ -15,7 +15,7 @@ permalink: /My Books/
 > 
 > But the Wasteland conceals impossible scientific phenomena that force Carrick to realize how little he understands—and when an officer of humanity’s ancient, starfaring empire crashes into the Wasteland’s heart, he reveals Planet Dirt’s coldest secret.
 > 
-> The Accident was only the beginning of a bitter end.The Accident was only the beginning of a bitter end.
+> The Accident was only the beginning of a bitter end.
 > 
 > [About 56,000 words. Read now on Kindle Unlimited.](https://www.amazon.com/Encapsulation-Novel-Taylor-Clogston-ebook/dp/B09PZJVBCR "142 pages. Read now on Kindle Unlimited.")
 
