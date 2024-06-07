@@ -2,7 +2,7 @@
 layout: post
 title:  "Ten-Minute Story Exercise (Monday)"
 date:   2023-10-23 00:00:00 -0500
-categories: fiction, flash fiction
+categories: fiction flash-fiction
 ---
 _To warm up for NaNoWriMo 2023 next Wednesday, I'm writing as complete a short story as I can manage each day this week—in no more than ten minutes each. Hopefully, I'll become more efficient as I repeat the exercise. Before I write, I roll three pairs of [Rory's Story Cubes](https://www.storycubes.com "Rory's Story Cubes")—one for the main character, one for the story setting, and one for the starting situation. Then, I start the timer and begin writing._
 

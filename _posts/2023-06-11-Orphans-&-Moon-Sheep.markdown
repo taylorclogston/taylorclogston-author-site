@@ -2,7 +2,7 @@
 layout: post
 title:  "Orphans & Moon Sheep"
 date:   2023-07-11 00:00:00 -0500
-categories: fiction, flash fiction
+categories: fiction flash-fiction
 ---
 *Last night, I finished playing a [D&D 5e](https://www.dndbeyond.com/) campaign in the [Eberron](https://en.wikipedia.org/wiki/Eberron) setting—a campaign that had run for over three years. Our DM recorded all two hundred sessions of the campaign, and you can watch them [here.](https://www.youtube.com/watch?v=5NcYkJ_z-Eo&list=PLKf-mXZAT29UlgmR6D35Ba_d-7mSnurtg)*
 

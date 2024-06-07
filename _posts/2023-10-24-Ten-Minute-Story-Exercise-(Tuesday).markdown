@@ -2,7 +2,7 @@
 layout: post
 title:  "Ten-Minute Story Exercise (Tuesday)"
 date:   2023-10-24 00:00:00 -0500
-categories: fiction, flash fiction
+categories: fiction flash-fiction
 ---
 _Day Two of my ten-minute short story challenge! Read Monday's entry [here.](http://taylorclogston.com/ten-minute-story-exercise-monday/ "ten-minute short story challenge!")_
 

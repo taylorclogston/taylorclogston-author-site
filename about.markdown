@@ -7,6 +7,6 @@ permalink: /About Me/
 
 A fiction author, freelance book and article editor, and amateur literary critic, Taylor hails from the dark forests and icy roads of New Hampshire.
 
-He's written for [Comic Book Resources](https://www.cbr.com/author/taylor-clogston "Comic Book Resources") and [Shortform.](https://shortform.com "Shortform.") In his free time, he and writes [science fiction and fantasy books](https://www.amazon.com/Taylor-Clogston/e/B0776YWS6N "science fiction and fantasy books") which combine his love of ridiculous fantasy action with pseudophilosophical themes that make Taylor think he's smarter than he really is.
+He's written for [Comic Book Resources](https://www.cbr.com/author/taylor-clogston "Comic Book Resources") and [Shortform.](https://shortform.com "Shortform.") In his free time, he writes [science fiction and fantasy books](https://www.amazon.com/Taylor-Clogston/e/B0776YWS6N "science fiction and fantasy books") which combine his love of ridiculous fantasy action with pseudophilosophical themes that make Taylor think he's smarter than he really is.
 
 Taylor sporadically publishes [YouTube videos](https://www.youtube.com/channel/UC17WQQbzMb-tYpLTCu_28YQ "YouTube videos") about fiction writing.
