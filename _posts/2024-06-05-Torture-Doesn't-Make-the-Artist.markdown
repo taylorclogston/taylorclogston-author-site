@@ -51,3 +51,7 @@ I am, at the moment, tortured. This same torture is making me not, at the moment
 Actually, dear reader, I have another hope.
 
 If you needed to read this in some way, whether to receive permission to be tortured but not an artist, or an artist but not tortured, to be told in some way that aligns with anything that I said here that *you are not alone,* then I hope you found this when it was needed, maybe even as I found *How the Light Gets In*—and maybe even it will come to pass that I led you to that very same book, and it helped you as it helped me, and for once I can feel that in being the vector for an ideological virus, I did, in fact, make the world a better place.
+
+### Update 6/9/24
+
+The veterinarian blessed me in an incredible, unexpected way. I didn't have to say goodbye to my cat this past week, and hopefully he will live a happy life for a good while longer.
