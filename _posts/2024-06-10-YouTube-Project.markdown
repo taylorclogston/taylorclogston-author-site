@@ -8,4 +8,4 @@ A few weeks ago I started working on a project I'm calling *Reading About Writin
 
 I look forward to continuing to work on this project, especially when I have more mental energy to devote to it.
 
-<iframe width="720" height="360" src="https://youtu.be/embed/iba8EmrkEt4" frameborder="0"> </iframe>
+<iframe width="720" height="480" src="https://www.youtube.com/embed/iba8EmrkEt4?si=BDyDuWi4P3Z24djM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
